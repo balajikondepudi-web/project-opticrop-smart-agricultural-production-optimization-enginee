@@ -1,1 +1,0 @@
-# project-opticrop-smart-agricultural-production-optimization-enginee
